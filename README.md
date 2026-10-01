@@ -1,0 +1,1 @@
+# linux-mint-certification2026
